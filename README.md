@@ -1,5 +1,4 @@
-# aluna ana julia
-
+# ana julia santos
 eu gosto de desenhar 
-# estou no primeiro ano do emilio
-colegio emilio de menezes 
+# estudo no emilio de menezes 
+estou no primeiro ano do novo ensino medio 
